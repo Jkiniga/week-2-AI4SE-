@@ -1,0 +1,2 @@
+# week-2-AI4SE-
+AI DRIVEN SOLUTION
